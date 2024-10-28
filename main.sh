@@ -1,1 +1,1 @@
-Adeu
+Bona tarda
